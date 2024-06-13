@@ -1,0 +1,1 @@
+n short, our memories are crucial to the essence of who we are as human beings. That means age-related memory loss can represent a loss of self. It also affects the practical side of life, like getting around the neighborhood or remembering how to contact a loved one.
